@@ -1,4 +1,4 @@
-## # 🎮 PUBG: BATTLEGROUNDS – PC Download Guide
+## 🎮 PUBG: BATTLEGROUNDS – PC Download Guide
 
 ## 📝 Overview
 
